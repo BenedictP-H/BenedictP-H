@@ -2,8 +2,8 @@
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning to type
 - 💞️ I’m looking to collaborate on world destruction
-- 📫 How to reach me, don't
-- 😄 Pronouns: ...
+- 📫 How to reach me: don't
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: bears beats battlestar galactica
 
 <!---
